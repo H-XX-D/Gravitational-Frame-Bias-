@@ -1,4 +1,4 @@
-Any help getting this published would be apperciated on move from decades of not being able to explain to clarity and direction, direction of funding goals and horizons a 
+Any help getting this published would be apperciated moving all us from decades of not being able to explain to clarity and direction, direction of effort goals and horizons 
 
 link to download the paper  
 
