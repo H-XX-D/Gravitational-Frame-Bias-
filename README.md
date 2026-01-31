@@ -5,7 +5,7 @@ link to download the paper
 [Gravitational_Frame_Bias.pdf](https://github.com/user-attachments/files/24983476/Gravitational_Frame_Bias.pdf)
 
 # Gravitational Frame Bias
-## A Scale-Dependent Systematic in Astrophysical Measurements
+## A Scale-Dependent Systematic in Astrophysical Measurement
 
 **Todd Hendricks**
 *Independent Researcher*
